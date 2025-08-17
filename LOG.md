@@ -1,0 +1,7 @@
+# Daily Log
+
+## 2025-08-17
+- Repo created. Starting coding + math practice tonight.
+
+## 2025-08-18
+- (add what you do tomorrow)
